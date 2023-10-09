@@ -1,7 +1,7 @@
 # spell-dimensions-dragon-eggs-patch
 This dimension is in the winter snow and there is a patch of dragon eggs covered in snow.
 
-1. dragon eggs for for sale
+1. dragon eggs for sale
 
 2. dragon eggs look different
 
